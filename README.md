@@ -1,6 +1,6 @@
 # Mitchell Dubin | IT / OT Cybersecurity Professional
 
-**Montevallo, AL** | (941) 549-1751 | [mitchdubs626@gmail.com](mailto:mitchdubs626@gmail.com) | [LinkedIn](https://linkedin.com/in/mitchell-dubin-55146b160/) | [Resume (PDF)](Mitchell Dubin’s Resume (2026).docx)
+**Montevallo, AL** | (941) 549-1751 | [mitchdubs626@gmail.com](mailto:mitchdubs626@gmail.com) | [LinkedIn](https://linkedin.com/in/mitchell-dubin-55146b160/) | [Resume](Resume.docx)
 
 ---
 
