@@ -71,7 +71,6 @@ Proven ability to diagnose and resolve issues quickly in high-stakes manufacturi
 
 - **Bachelor of Science in Information Technology** – Network Operations  
   Thomas Edison State University (TESU) – In Progress  
-  (Previously evaluated at Western Governors University)
 
 - **Naval Nuclear Propulsion Training Command**  
   Nuclear Electrician Basic Training & Naval Nuclear Power School – Graduated
